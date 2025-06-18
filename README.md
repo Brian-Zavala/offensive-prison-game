@@ -1,4 +1,4 @@
-# Asshole of the Earth Prison Game 🧨
+# Prison Game
 
 **⚠️ CONTENT WARNING: This project contains explicit language, dark humor, and intentionally offensive descriptions. It is not suitable for children, sensitive audiences, or use in professional/educational environments.**
 
